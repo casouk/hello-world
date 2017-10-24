@@ -11,7 +11,7 @@ He took his vorpal sword in hand: Long time the manxome foe he sought
 So rested he by the Tumtum tree, and stood a while in thought.
 
 As in offish thought he stood, The Jabberwock, with eyes of flame,
-Came whiffling through the tuley wood, and burbled as it came! 
+Came whiffling through the tulgey wood, and burbled as it came! 
 
 One, two! One, two! And through and through the vorpal blade went snicker-snack!
 He left it dead, and with its head he went galumphing back. 
